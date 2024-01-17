@@ -45,9 +45,9 @@ company names'openai'
 
 digital accounts secure amounts  
 
-aunthenties access cards
+aunthenties term access cards
 
-account'access' ways
+account'access'transactions systems
 
 identities' scan' Done'
 
