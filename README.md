@@ -17,11 +17,13 @@ IP address'
 
 members access'costs numbers
 
-cards proccessing'authentin
+cards proccessing'usd'
 
 main' shopping an internet 
 
-identities cards transactions'
+identities cards purchase access'
+
+productions
 
 company names'google'
 
@@ -40,6 +42,12 @@ company names'intel'
 company names'nvidai 
 
 company names'openai'
+
+digital accounts secure amounts  
+
+aunthenties access 
+
+companies payments applications
 
 account'access' ways
 
