@@ -16,7 +16,7 @@ IP address'
 
 purchase payments card members' 
 
-cards access numbers'costs
+access'costs numbers
 
 cards proccessing'authenting
 
