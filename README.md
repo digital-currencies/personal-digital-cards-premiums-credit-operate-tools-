@@ -47,9 +47,9 @@ personal cards secure amounts
 
 aunthenties costs proccessing
 
-account access systems transactions
+accounts access onlines shopping transactions
 
-onlines interactive accessbase 
+internets interactive accessbase 
 
 companies premiums site 
 
