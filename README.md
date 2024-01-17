@@ -45,7 +45,7 @@ company names'openai'
 
 digital accounts secure amounts  
 
-aunthenties term access cards
+aunthenties proccessing costs
 
 account'access'transactions systems
 
@@ -53,6 +53,6 @@ identities' scan' Done'
 
 free' online' shopping'
 
-all' applications'available' 
+all applications available' 
 
 
