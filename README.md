@@ -1,12 +1,13 @@
 # personal-digital-cards-operate premiums free-cards tools-
-starts companies 
+starts companies ID carts
 
-personal digital cards
+personal digital cards 
 
+userbase employments github with collabarate 
 
+identitical accounts 
 
-
-accounts identities names'
+numbervice database revenue detail
 
 personal informations members'
 
