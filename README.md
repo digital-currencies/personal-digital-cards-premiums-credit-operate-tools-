@@ -45,11 +45,11 @@ company names'openai'
 
 personal cards secure amounts  
 
-accounts access onlines shopping transactions
+onlines shopping costs transactions
 
 paying billing an subscriptions
 
-internets interactive accessbase 
+internets interactive accountbase
 
 
 
