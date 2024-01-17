@@ -43,16 +43,16 @@ company names'nvidai
 
 company names'openai'
 
-digital accounts secure amounts  
+personal cards secure amounts  
 
 aunthenties proccessing costs
 
-account'access'transactions systems
+account access systems transactions
 
-identities' scan' Done'
+identities scan Done
 
-free' online' shopping'
+free online shopping
 
-all applications available' 
+all applications available
 
 
