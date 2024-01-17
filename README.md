@@ -1,4 +1,4 @@
-# personal-digital-cards-premiums-credit-operate-tools-
+# personal-digital-cards-premiums free-credit-operate-tools-
 starts companies 
 
 personal digital cards
@@ -6,24 +6,28 @@ personal digital cards
 
 
 
-accounts identities names
+accounts identities names'
 
-personal informations members
+personal informations members'
 
-mails phones
+mails phones'
 
-IP address 
+IP address'
 
-purchase payments Done 
+purchase payments Done' 
 
-cards access numbers''''' 
+cards access numbers' authenting 
 
-cards productive available
+cards proccessing costs'
 
-companies names '''''' amazon' facebook'
+companies names amazon' facebook'
 
-shopping free transactions data' 
+shopping transactions data' 
 
-all applications WED avail'
+ avail'
+
+accounts access buys an pays online shop'
+
+available all WED applications
 
 
