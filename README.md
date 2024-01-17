@@ -45,7 +45,7 @@ company names'openai'
 
 personal cards secure amounts  
 
-aunthenties proccessing costs
+costs aunthenties proccessing
 
 account access systems transactions
 
