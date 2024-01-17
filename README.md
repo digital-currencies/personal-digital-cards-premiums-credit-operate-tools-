@@ -45,11 +45,13 @@ company names'openai'
 
 personal cards secure amounts  
 
-costs aunthenties proccessing
+aunthenties costs proccessing
 
 account access systems transactions
 
-identities scan Done
+device interactive user accessable 
+
+base identities scan'
 
 free online shopping
 
