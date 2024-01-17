@@ -45,11 +45,13 @@ company names'openai'
 
 personal cards secure amounts  
 
-aunthenties costs proccessing
-
 accounts access onlines shopping transactions
 
+paying billing an subscriptions
+
 internets interactive accessbase 
+
+
 
 companies premiums site 
 
