@@ -23,9 +23,11 @@ cards proccessing'authentin
 
 main shopping transactions data' 
 
- avail' importantens wedapps internet 
+importantens wed'apps internet 
 
-accounts identities access 
+account' ways access
+
+identities scan Done'
 
 free online shopping'
 
