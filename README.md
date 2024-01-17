@@ -14,7 +14,7 @@ mails phones'
 
 IP address'
 
-purchase payments card members' 
+purchase pay members cards' 
 
 access'costs numbers
 
