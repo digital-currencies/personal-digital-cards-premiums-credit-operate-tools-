@@ -14,19 +14,18 @@ mails phones'
 
 IP address'
 
-purchase payments Done' 
+purchase payments card members' 
 
-cards access numbers' authenting 
+cards access numbers'costs
 
-cards proccessing costs'
+cards proccessing'authenting
 
-companies names amazon' facebook'
 
-shopping transactions data' 
+main shopping transactions data' 
 
  avail'
 
-accounts access buys an pays online shop'
+accounts identities access buys an pays online shop'
 
 available all WED applications
 
