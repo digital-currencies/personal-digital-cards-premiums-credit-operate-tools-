@@ -10,7 +10,8 @@ accounts identities names'
 
 personal informations members'
 
-mails phones'
+ 
+phones'links family
 
 IP address'
 
@@ -18,12 +19,11 @@ purchase pay members cards'
 
 access'costs numbers
 
-cards proccessing'authenting
-
+cards proccessing'authentin
 
 main shopping transactions data' 
 
- avail'
+ avail' importantens wedapps internet 
 
 accounts identities access 
 
