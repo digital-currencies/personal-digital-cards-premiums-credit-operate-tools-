@@ -45,7 +45,7 @@ company names'openai'
 
 digital accounts secure amounts  
 
-aunthenties access 
+aunthenties access cards
 
 companies payments applications
 
