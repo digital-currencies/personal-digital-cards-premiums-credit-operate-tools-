@@ -1,28 +1,25 @@
 # personal-digital-cards-operate premiums free-cards tools-
 starts companies ID carts
 
-personal digital cards 
+personal employer digital cards 
 
-userbase employments github with collabarate 
+access employments github with collabarate 
 
-identitical accounts 
+IT identitical accounts 
 
 numbervice database revenue detail
 
 personal informations members'
 
- 
-family accounts 
-
 IP address' 
 
-ID members access''
+ID members links
 
 cards proccessing'costs'
 
 main' shopping an internet 
 
-identities cards purchase access'
+cards purchase access'
 
 productions
 
