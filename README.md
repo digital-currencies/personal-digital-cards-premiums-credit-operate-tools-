@@ -31,6 +31,6 @@ identities scan Done'
 
 free online shopping'
 
-available applications
+links applications  all
 
 
