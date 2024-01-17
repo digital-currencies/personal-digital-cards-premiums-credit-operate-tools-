@@ -13,15 +13,15 @@ personal informations members'
  
 family accounts 
 
-IP address'
+IP address' 
 
-purchase pay members cards' 
-
-access'costs numbers
+members access'costs numbers
 
 cards proccessing'authentin
 
-main' shopping an internet cards transactions'
+main' shopping an internet 
+
+identities cards transactions'
 
 company names'google'
 
