@@ -47,8 +47,6 @@ digital accounts secure amounts
 
 aunthenties access cards
 
-companies payments applications
-
 account'access' ways
 
 identities' scan' Done'
