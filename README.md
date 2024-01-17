@@ -49,9 +49,11 @@ aunthenties costs proccessing
 
 account access systems transactions
 
-device interactive user accessable 
+device interactive accessbase 
 
-base identities scan'
+companies premiums site userbase
+
+identities scan'
 
 free online shopping
 
