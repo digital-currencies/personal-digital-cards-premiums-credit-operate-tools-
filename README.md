@@ -11,7 +11,7 @@ accounts identities names'
 personal informations members'
 
  
-phones'links family
+family accounts 
 
 IP address'
 
@@ -21,16 +21,32 @@ access'costs numbers
 
 cards proccessing'authentin
 
-main shopping transactions data' 
+main' shopping an internet cards transactions'
 
-importantens wed'apps internet 
+company names'google'
 
-account' ways access
+company names' github'
 
-identities scan Done'
+company names' facebook'
 
-free online shopping'
+company names' amazon'
 
-links applications  all
+company names' microsoft'
+
+company names' apple'
+
+company names'intel'
+
+company names'nvidai 
+
+company names'openai'
+
+account'access' ways
+
+identities' scan' Done'
+
+free' online' shopping'
+
+all' applications'available' 
 
 
