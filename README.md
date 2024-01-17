@@ -15,9 +15,9 @@ family accounts
 
 IP address' 
 
-members access'costs numbers
+ID members access''
 
-cards proccessing'usd'
+cards proccessing'costs'
 
 main' shopping an internet 
 
