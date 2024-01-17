@@ -6,7 +6,7 @@ personal digital cards
 
 
 
-accounts identies names
+accounts identities names
 
 personal informations members
 
@@ -22,6 +22,8 @@ cards productive available
 
 companies names '''''' amazon' facebook'
 
-shopping free transactions data generate 
+shopping free transactions data' 
+
+all applications WED avail'
 
 
