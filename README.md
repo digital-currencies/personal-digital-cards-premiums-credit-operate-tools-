@@ -25,7 +25,9 @@ main shopping transactions data'
 
  avail'
 
-accounts identities access buys an pays online shop'
+accounts identities access 
+
+free online shopping'
 
 available all WED applications
 
