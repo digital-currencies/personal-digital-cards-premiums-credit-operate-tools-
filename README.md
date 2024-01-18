@@ -7,7 +7,7 @@ access employments github with collabarate
 
 IT identitical accounts 
 
-numbervice database revenue detail
+numbervice revenue detail
 
 personal informations members'
 
