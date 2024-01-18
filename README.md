@@ -1,25 +1,23 @@
 # personal-digital-cards-operate premiums free-cards tools-
 starts companies ID carts
 
-personal employer digital cards 
+personal IT employer 
 
-access employments github with collabarate 
+employments data collabarate github
 
-IT identitical accounts
+IT admin accounts
 
-personal informations members'
+personal informations 
 
 IP address' 
 
-ID members links
+digital membership 
 
-digital cards costs proccessing
+anuthenting purchase subscriptions
 
-main' shopping an internet 
+free online shopping  
 
-cards purchase access'
-
-productions
+productions avail'
 
 company names'google'
 
@@ -37,18 +35,12 @@ company names'intel'
 
 company names'nvidai 
 
-company names'openai'
+company names'openai' 
 
-free onlines shopping 
+paying billing
 
-paying billing an subscriptions
+IT admin account 
 
-digital accounts sycn 
 
-companies premiums site 
-
-large customers users 
-
-online free applications available
 
 
