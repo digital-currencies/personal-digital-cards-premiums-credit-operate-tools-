@@ -22,7 +22,7 @@ anuthenting purchase subscriptions
 
 free online shopping  
 
-productions avail'
+ available'
 
 company names'google'
 
@@ -38,7 +38,7 @@ company names' apple'
 
 company names'intel'
 
-company names'nvidai 
+company names'nvidia'
 
 company names'openai' 
 
