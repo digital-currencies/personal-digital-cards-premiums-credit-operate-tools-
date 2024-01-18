@@ -5,9 +5,7 @@ personal employer digital cards
 
 access employments github with collabarate 
 
-IT identitical accounts 
-
-numbervice revenue detail
+IT identitical accounts
 
 personal informations members'
 
@@ -15,7 +13,7 @@ IP address'
 
 ID members links
 
-cards proccessing'costs'
+digital cards costs proccessing
 
 main' shopping an internet 
 
@@ -41,22 +39,16 @@ company names'nvidai
 
 company names'openai'
 
-personal cards secure amounts  
-
-onlines shopping costs transactions
+free onlines shopping 
 
 paying billing an subscriptions
 
-internets interactive accountbase
-
-
+digital accounts sycn 
 
 companies premiums site 
 
 large customers users 
 
-free online shopping
-
-all applications available
+online free applications available
 
 
