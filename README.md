@@ -1,6 +1,6 @@
 IT admin-cards
- 
-operate premiums free-data-
+
+premiums free-data-
 
 personal IT employer 
 
@@ -24,23 +24,23 @@ free online shopping
 
  available'
 
-company names'google'
+company google'
 
-company names' github'
+ github'
 
-company names' facebook'
+facebook'
 
-company names' amazon'
+amazon'
 
-company names' microsoft'
+microsoft'
 
-company names' apple'
+apple'
 
-company names'intel'
+intel'
 
-company names'nvidia'
+nvidia'
 
-company names'openai' 
+openai' 
 
 paying billing
 
