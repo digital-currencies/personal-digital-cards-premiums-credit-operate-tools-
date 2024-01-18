@@ -1,9 +1,14 @@
-# personal-digital-cards-operate premiums free-cards tools-
-starts companies ID carts
+# personal-digital-cards-operate premiums free-cards data-
+
+IT admin member'
 
 personal IT employer 
 
-employments data collabarate github
+social media 
+
+works employments  
+
+data collabarate 
 
 IT admin accounts
 
@@ -11,7 +16,7 @@ personal informations
 
 IP address' 
 
-digital membership 
+digital cardship 
 
 anuthenting purchase subscriptions
 
