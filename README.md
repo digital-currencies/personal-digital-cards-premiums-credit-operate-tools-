@@ -1,10 +1,12 @@
  admin-cards
 
-premiums free-data-
+premiums-data-
 
 personal employer 
 
 social media 
+
+device interactive 
 
 works employments  
 
@@ -16,15 +18,17 @@ personal informations
 
 IP address' 
 
-digital cardship 
+digital carts 
 
-anuthenting purchase subscriptions
+purchase subscription
 
-free online shopping
+costs transactions 
 
-company google'
+anthenting
 
- github'
+google'
+
+github'
 
 facebook'
 
