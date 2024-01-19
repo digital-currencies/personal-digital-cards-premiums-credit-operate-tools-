@@ -1,8 +1,8 @@
-IT admin-cards
+ admin-cards
 
 premiums free-data-
 
-personal IT employer 
+personal employer 
 
 social media 
 
@@ -10,7 +10,7 @@ works employments
 
 data collabarate 
 
-IT admin accounts
+admin accounts
 
 personal informations 
 
@@ -20,9 +20,7 @@ digital cardship
 
 anuthenting purchase subscriptions
 
-free online shopping  
-
- available'
+free online shopping
 
 company google'
 
@@ -44,7 +42,7 @@ openai'
 
 paying billing
 
-IT admin account 
+admin account 
 
 
 
