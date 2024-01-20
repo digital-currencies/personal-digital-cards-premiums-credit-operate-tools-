@@ -1,16 +1,14 @@
- admin-cards
 
-premiums-data-
 
-personal employer 
+personal accounts
 
 social media 
 
 device interactive 
 
-works employments  
+works employ   
 
-data collabarate 
+collabarate 
 
 admin accounts
 
@@ -18,7 +16,7 @@ personal informations
 
 IP address' 
 
-digital carts 
+admin carts 
 
 purchase subscription
 
