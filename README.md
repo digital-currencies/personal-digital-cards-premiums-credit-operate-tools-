@@ -1,6 +1,6 @@
 
 
-personal accounts
+
 
 social media 
 
@@ -8,9 +8,9 @@ device interactive
 
 works employ   
 
-collabarate 
+personal accounts 
 
-admin accounts
+collabarate 
 
 personal informations 
 
