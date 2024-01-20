@@ -22,7 +22,7 @@ purchase subscription
 
 costs transactions 
 
-anthenting
+authenting 
 
 google'
 
